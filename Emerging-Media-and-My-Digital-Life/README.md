@@ -1,4 +1,4 @@
-###Emerging Media and My Digital Life
+Emerging Media and My Digital Life
 
 While TikTok was being used to group people with nationalist misogynistic agendas, Facebook was being used to scam lonely women out of their life savings. While I believe the TikTok problem would be very difficult to solve, I think the FaceBook one would not be nearly as difficult thanks to the Google reverse image function. If Facebook implemented a security check that whenever someone uploaded a picture that picture was reverse image searched to see if it was really their picture it would be much more difficult for these Nigerian scammers to successfully scam their victims. Also, maybe people shouldn’t be sending money to people they haven’t ever met, but maybe that’s just me.
 
